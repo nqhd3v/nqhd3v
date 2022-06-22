@@ -1,7 +1,7 @@
 #### build something, what helps out lives simplers!
 
 
-> Buy me a coffee? [Here] (https://www.buymeacoffee.com/nqhd3v)! Thank you so much!
+> Buy me a coffee? [Here](https://www.buymeacoffee.com/nqhd3v)! Thank you so much!
 
 
 <!--
