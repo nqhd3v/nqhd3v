@@ -1,4 +1,8 @@
-### Hi there 👋
+#### build something, what helps out lives simplers!
+
+
+> Buy me a coffee? [Here] (https://www.buymeacoffee.com/nqhd3v)! Thank you so much!
+
 
 <!--
 **nqhd3v/nqhd3v** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
