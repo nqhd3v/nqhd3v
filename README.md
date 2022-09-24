@@ -1,4 +1,4 @@
-#### build something, what helps out lives simplers!
+#### build something, what helps our lives simplers!
 
 
 > Buy me a coffee? [Here](https://www.buymeacoffee.com/nqhd3v)! Thank you so much!
